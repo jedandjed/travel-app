@@ -1,2 +1,2 @@
 # travel-app
- For all of Jess and Jed's travel needs!
+ For all of J.E.D. and Jed's travel needs!
